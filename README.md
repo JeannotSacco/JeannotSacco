@@ -6,4 +6,7 @@ During my exchange in Shanghai, I discovered how exciting the global financial w
 
 💼 **I am looking for an internship in finance with a strong technology component, starting January 2026.**  
 
-Feel free to explore my projects and reach out!
+Feel free to explore my LinkedIn and reach out!
+
+www.linkedin.com/in/jean-lagorsse-6437b2250
+jean.lagorsse@etu.utc.fr
